@@ -1,1 +1,1 @@
-#Ganz Neuer Titel
+#Neuer Titel

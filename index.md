@@ -7,3 +7,6 @@ Die Rolle des hemdsärmeligen Polizisten Harry Callahan in der Filmreihe Dirty H
 * Gebohren
 * gelebt
 * gestorben
+
+> I’ve always been more interested
+> in the future than in the past.
